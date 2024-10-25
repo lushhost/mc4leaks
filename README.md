@@ -1,2 +1,1 @@
-# mc4leaks
-website
+#Do not copy
